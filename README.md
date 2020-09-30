@@ -1,1 +1,0 @@
-# English-whale-talk-translator
